@@ -1,4 +1,4 @@
-## ***Boas-vindas ao meu perfil!🕷***
+## ***Boas-vindas ao meu perfil!🌃***
 
 _Meu nome é Murillo de Oliveira_
 
